@@ -1,6 +1,5 @@
-- Meu nome é matheus e  sou Estudante
--  A procura de Oportunidades
-- Atualmente estou  Estudando no 1 ano do Ensino medio e  faço curso pré Militar
--  Procuro  Colaborar em Projetos Futuros
-- Instagram:_th3us_XV_
-- 
+- Meu nome é matheus Patricio e sou Estudante
+- A procura de Oportunidades
+- Atualmente estou  Estudando no 1 ano do Ensino medio e  faço curso de inglês
+- Procuro Colaborar em Projetos Futuros
+- Instagram:opatricioo_
